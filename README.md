@@ -4,9 +4,7 @@ Tuition-Efficient ABSN Preparation and Medical Career Track
 # UW ABSN + Medical Career Plan
 
 **Name:** Collin George
-
 **Date:** June 06, 2025
-
 **Plan Type:** Tuition-Efficient ABSN Preparation and Medical Career Track
 
 ---
